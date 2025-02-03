@@ -3,3 +3,7 @@
 INFO - i free hide and have a LOT of people hid. if youre hid oh well! im almost always afk, whisps are a-okay even if im on DNIUID. C + H always. i love fortnite and crk! no dni i curate my own online space and WILL oil up that block button. im kind of mean sometimes
 
 <img width="200" height="200" src="https://media1.tenor.com/m/RKKdzvO1TAQAAAAC/can-you-stop-fucking-around-sunspot.gif">
+
+
+
+<img src="https://files.catbox.moe/eecri2.png">
