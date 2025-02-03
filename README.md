@@ -4,6 +4,3 @@ INFO - i free hide and have a LOT of people hid. if youre hid oh well! im almost
 
 <img width="200" height="200" src="https://media1.tenor.com/m/RKKdzvO1TAQAAAAC/can-you-stop-fucking-around-sunspot.gif">
 
-
-
-<img src="https://files.catbox.moe/eecri2.png">
