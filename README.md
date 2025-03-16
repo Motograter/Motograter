@@ -1,6 +1,9 @@
-<img src="https://files.catbox.moe/paicie.png"> <img src="https://files.catbox.moe/e0zkr6.png"> <img width="95" height="60" src="https://64.media.tumblr.com/c065e352d7c8243e6eeb958b4aaf581f/0bd78036aee0e21f-3b/s250x400/18525e6e38d497aa4afcba34ab5743034e8e8772.pnj">
+<p align="center">
+<img src="https://media1.tenor.com/m/AhmUZ84-o04AAAAC/lensless-mark-lensless-invincible.gif"> 
 
-INFO - i free hide and have a LOT of people hid. if youre hid oh well! im almost always afk, whisps are a-okay even if im on DNIUID. C + H always. i love fortnite and crk! no dni i curate my own online space and WILL oil up that block button. im kind of mean sometimes
+  <p align="center">
+i free hide and have a LOT of people hid (i have whole fandom areas hid im not joshing you bruv). if youre hid dont take it personally. im almost always AFK and on DNIUID. whisps are a-okay even if im on DNIUID. C + H always. i love fortnite and invincible! no dni i curate my own online space and WILL oil up that block button. im kind of mean sometimes maybe
 
-<img width="2500" height="1200" src="https://files.catbox.moe/0spv72.png">
+  <p align="center">
+ㅤㅤㅤㅤㅤ<img width="150" height="150" src="https://media.tenor.com/5yHvsREpCTUAAAAj/scrolling-on-phone-mark-grayson.gif">
 
