@@ -1,12 +1,15 @@
 <div align="center">
 
+"𝑾𝒉𝒂𝒕 𝒅𝒐 𝒚𝒐𝒖 𝒔𝒂𝒚? 𝑾𝒂𝒏𝒏𝒂 𝒈𝒐 𝒂𝒓𝒐𝒖𝒏𝒅 𝒂𝒈𝒂𝒊𝒏?"
+
+
 <img src="https://64.media.tumblr.com/4900c4832744c99991d17fed813a50be/9ab49dc61682ef7e-ed/s100x200/9c6bfc84abecae841b38d90581487644bdbbeb1e.gifv">  <img src="https://64.media.tumblr.com/80482d2b6afb28b52f32e7457a2c9520/9ab49dc61682ef7e-9b/s100x200/4a30dd1ba92199aa173377e8587baa3e4824811d.gifv">  <img src="https://64.media.tumblr.com/bfb8998ed93a9a6c3ff3d4bc7338366b/9ab49dc61682ef7e-88/s100x200/549b5294d61114a1001d7082ced3b04bfeac2ab1.gifv"> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ckindler05&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 <img src="https://files.catbox.moe/vnf3kl.png"> 
 
-# 𝐒𝐚𝐢 / 𝐀𝐢𝐫𝐞𝐬 .ᐟ 
+# 𝐒𝐚𝐢 / 𝐀𝐢𝐫𝐞𝐬 .ᐟ
 
 <p align="center">
 <img src="https://64.media.tumblr.com/3a61c58196919cf7e464b17f4aa79b7f/de29105086fd3467-5f/s500x750/2d1476827719d3b8a627536118bbb21af1903dd0.gifv"> 
