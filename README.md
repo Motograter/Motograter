@@ -9,7 +9,7 @@
 
 <img src="https://files.catbox.moe/vnf3kl.png"> 
 
-# 𝐅𝐫𝐲 / 𝐁𝐞𝐧𝐝𝐞𝐫 .ᐟ
+# 𝐒𝐚𝐢 / 𝐀𝐢𝐫𝐞𝐬 .ᐟ
 
 <p align="center">
 <img src="https://64.media.tumblr.com/3a61c58196919cf7e464b17f4aa79b7f/de29105086fd3467-5f/s500x750/2d1476827719d3b8a627536118bbb21af1903dd0.gifv"> 
