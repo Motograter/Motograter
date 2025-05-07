@@ -27,6 +27,8 @@
 
 𝗜'𝗺 𝘁𝘆𝗽𝗶𝗰𝗮𝗹𝗹𝘆 𝗼𝗻 𝗗𝗡𝗜𝗨𝗜𝗗 𝗯𝘂𝘁 𝗰𝗿𝗼𝘄𝗻𝘀, 𝗖+𝗛, 𝗮𝗻𝗱 𝘄𝗵𝗶𝘀𝗽𝗲𝗿𝘀 𝗮𝗿𝗲 𝗮𝗹𝘄𝗮𝘆𝘀 𝗮𝗽𝗽𝗿𝗲𝗰𝗶𝗮𝘁𝗲𝗱! 𝗜'𝗺 𝘂𝘀𝘂𝗮𝗹𝗹𝘆 𝗔𝗙𝗞 𝗳𝗼𝗿 𝗹𝗼𝗻𝗴 𝗽𝗲𝗿𝗶𝗼𝗱𝘀 𝗮𝘁 𝗮 𝘁𝗶𝗺𝗲 𝘀𝗼 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝗲𝘀 𝗶𝗳 𝗜 𝗿𝗲𝗽𝗹𝘆 𝗹𝗮𝘁𝗲. 𝗜'𝗺 𝗮 𝗳𝗿𝗲𝗲 𝗵𝗶𝗱𝗲𝗿 𝗮𝗻𝗱 𝗵𝗮𝘃𝗲 𝗮 𝗴𝗼𝗼𝗱 𝗺𝗮𝗷𝗼𝗿𝗶𝘁𝘆 𝗼𝗳 𝗽𝗲𝗼𝗽𝗹𝗲 𝗵𝗶𝗱, 𝗜 𝗹𝗶𝘁𝗲𝗿𝗮𝗹𝗹𝘆 𝗵𝗮𝘃𝗲 𝘄𝗵𝗼𝗹𝗲 𝗮𝗿𝗲𝗮𝘀 𝗵𝗶𝗱 𝘀𝗼 𝗱𝗼𝗻'𝘁 𝘁𝗮𝗸𝗲 𝗶𝘁 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹𝗹𝘆 𝗶𝗳 𝘆𝗼𝘂'𝗿𝗲... 𝗵𝗶𝗱!
 
+ <img src="https://files.catbox.moe/whjrke.png"> 
+
 <img src="https://64.media.tumblr.com/69efe6070f4e1f5ac82aeb2e787e3f8a/f2cc2a65c0bafe8b-8b/s100x200/9b356ad70d99802bf6fb4387c8a8dcc9847311c0.pnj"> <img src="https://64.media.tumblr.com/0fb2d88ce1c46a92faa714a2dcc08bc2/0dbb877b56918480-cf/s100x200/538ddae26d3657c6273cc88e5f47de4914d10fc6.gifv"> <img src="https://64.media.tumblr.com/9b5e8c88352be49c24d336554b5d2f04/6ee1344952d88480-5d/s100x200/2a86fd9d660ff3ac099616eafa1558b04b4bab02.gifv"> <img src="https://64.media.tumblr.com/74bcaa83644f26d25eba30eee55da917/466cc56e6bf1232e-3b/s100x200/7d5e1c26fce582a51ee315fc97ca7404c207a79e.gifv"> <img src="https://64.media.tumblr.com/09cde1d50e8555960b583a45a673e453/0ff2c29561239f07-ec/s100x200/6f02258bb142be93295656d6e6ee2fc49a5eeb89.pnj">
 
 <img src="https://64.media.tumblr.com/13e0a0641e69b65bbb57a7ee9614ec61/65b1f656acbea9b4-5d/s100x200/6e9b946bd03f8003d4537e04ddd7d1dfdcdecbeb.gifv"> <img src="https://64.media.tumblr.com/ebc4bcdac83df35e534326610eb531db/74f9c1a7524fc393-9b/s100x200/d0ad8670f2999a33bd367ed89a81fec9430b7f94.pnj"> <img src="https://64.media.tumblr.com/3dde7f897933a5df6b0ec62873d836f1/5a137ddc52584ba1-0d/s100x200/8466624425130410d38b87377af73a2617500b0f.gifv"> <img src="https://64.media.tumblr.com/e646ede56dde4e0fd4701442d894487b/c4321a96434ec589-22/s100x200/652b160571dbbb65e4997b3cd55d7ac584b5a4d6.gifv"> <img src="https://64.media.tumblr.com/612fb10eb946a9b7029d40805b0e6713/98cbc5b0decebdf1-1e/s100x200/49b10d249986c2013753bd00223841fefcf602b7.pnj">
@@ -36,6 +38,6 @@
 <img src="https://64.media.tumblr.com/ff321844051953fabbb612f3d1d5ac94/b035b516dc88dd13-8a/s250x400/f9abd4953811179ca1d214f75d1d4cbce5156095.gifv"> <img src="https://64.media.tumblr.com/910aa333f3854cad291c88dda175208b/b32c64cc93000922-d5/s250x400/d908805a7997274774b7cfcf8c8b137b56779665.gifv"> <img src="https://64.media.tumblr.com/e9a5266fb438bba0a1e7b64ee86a0e32/e24aea302e062a10-5b/s250x400/04dfab7ec354802ce4369191ef8a0676db506390.webp"> <img src="https://64.media.tumblr.com/e0381520571728b4899d2dbb6fe824ea/6db96f7ecd419257-c9/s250x400/1859c6ce568a015efefda3a29da632c434fb2421.gifv">
 
 
-   <img src="https://files.catbox.moe/whjrke.png"> 
+
 
 </div>
