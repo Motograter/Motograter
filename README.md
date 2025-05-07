@@ -1,5 +1,8 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=Nintenduu&color=324573&abbreviated=true&style=for-the-badge)
+
+
 "𝑾𝒉𝒂𝒕 𝒅𝒐 𝒚𝒐𝒖 𝒔𝒂𝒚? 𝑾𝒂𝒏𝒏𝒂 𝒈𝒐 𝒂𝒓𝒐𝒖𝒏𝒅 𝒂𝒈𝒂𝒊𝒏?"
 
 
