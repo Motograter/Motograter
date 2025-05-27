@@ -15,7 +15,7 @@
 # 𝐒𝐚𝐢 / 𝐀𝐢𝐫𝐞𝐬 .ᐟ
 
 <p align="center">
-<img src="https://files.catbox.moe/0cv7im.png"> 
+<img src="https://files.catbox.moe/a9x73e.png"> 
 
   <p align="center">
     
@@ -24,13 +24,13 @@
 𝗜 𝗮𝗺 𝟭𝟵 𝘆𝗲𝗮𝗿𝘀 𝗼𝗹𝗱 𝗮𝗻𝗱 𝗵𝗶𝗴𝗵𝗸𝗲𝘆 𝗰𝗿𝗶𝗽𝗽𝗹𝗲𝗱 𝗵𝗲𝗵! 𝗜 𝗴𝗼 𝗯𝘆 𝗺𝗮𝗶𝗻𝗹𝘆 𝗛𝗲/𝗧𝗵𝗲𝘆. 𝗜'𝗺 𝗮 𝗳𝗶𝗰𝘁𝗸𝗶𝗻 𝗼𝗳 𝗠𝗔𝗥𝗞 𝗚𝗥𝗔𝗬𝗦𝗢𝗡 𝗮𝗻𝗱 𝗦𝗢𝗡𝗜𝗖 𝗧𝗛𝗘 𝗛𝗘𝗗𝗚𝗘𝗛𝗢𝗚, 𝗱𝗼𝘂𝗯𝗹𝗲𝘀 𝗛𝗘𝗔𝗩𝗬 𝗱𝗻𝗶. 𝗕𝗶𝗴 𝗳𝗮𝗻 𝗼𝗳 𝗮𝗱𝘂𝗹𝘁 𝗰𝗮𝗿𝘁𝗼𝗼𝗻𝘀, 𝗙𝗼𝗿𝘁𝗻𝗶𝘁𝗲, 𝗦𝗧𝗛, 𝗜𝗻𝘃𝗶𝗻𝗰𝗶𝗯𝗹𝗲, 𝗣𝗩𝗭, 𝗔𝗹𝗶𝗲𝗻𝘀 𝗳𝗿𝗮𝗻𝗰𝗵𝗶𝘀𝗲, 𝗮𝗻𝗱 𝗡𝘂 𝗺𝗲𝘁𝗮𝗹. 𝗔𝗟𝗜𝗘𝗡 𝗜𝗥𝗟 /𝗦𝗥𝗦! 𝗡𝗼 𝗳𝗹𝗶𝗿𝘁𝗶𝗻𝗴 𝗜 𝗵𝗮𝘃𝗲 𝗮 𝗯𝗼𝘆𝗳𝗿𝗶𝗲𝗻𝗱 𝗯𝗹𝗲𝗵𝗵𝗵 𝗜 𝗮𝗹𝘀𝗼 𝗵𝗮𝘁𝗲 𝘀𝗲𝘅𝘂𝗮𝗹 𝗷𝗼𝗸𝗲𝘀 𝗺𝗮𝗱𝗲 𝘁𝗼𝘄𝗮𝗿𝗱𝘀 𝗺𝗲
 
 <p align="center">
- <img src="https://files.catbox.moe/27183n.png">
+ <img src="https://files.catbox.moe/hio92w.png">
 
 # 𝐁𝐞𝐟𝐨𝐫𝐞 𝐲𝐨𝐮 𝐢𝐧𝐭 .ᐟ
 
 𝗜'𝗺 𝘁𝘆𝗽𝗶𝗰𝗮𝗹𝗹𝘆 𝗼𝗻 𝗗𝗡𝗜𝗨𝗜𝗗 𝗯𝘂𝘁 𝗰𝗿𝗼𝘄𝗻𝘀, 𝗖+𝗛, 𝗮𝗻𝗱 𝘄𝗵𝗶𝘀𝗽𝗲𝗿𝘀 𝗮𝗿𝗲 𝗮𝗹𝘄𝗮𝘆𝘀 𝗮𝗽𝗽𝗿𝗲𝗰𝗶𝗮𝘁𝗲𝗱! 𝗜'𝗺 𝘂𝘀𝘂𝗮𝗹𝗹𝘆 𝗔𝗙𝗞 𝗳𝗼𝗿 𝗹𝗼𝗻𝗴 𝗽𝗲𝗿𝗶𝗼𝗱𝘀 𝗮𝘁 𝗮 𝘁𝗶𝗺𝗲 𝘀𝗼 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝗲𝘀 𝗶𝗳 𝗜 𝗿𝗲𝗽𝗹𝘆 𝗹𝗮𝘁𝗲. 𝗜'𝗺 𝗮 𝗳𝗿𝗲𝗲 𝗵𝗶𝗱𝗲𝗿 𝗮𝗻𝗱 𝗵𝗮𝘃𝗲 𝗮 𝗴𝗼𝗼𝗱 𝗺𝗮𝗷𝗼𝗿𝗶𝘁𝘆 𝗼𝗳 𝗽𝗲𝗼𝗽𝗹𝗲 𝗵𝗶𝗱, 𝗜 𝗹𝗶𝘁𝗲𝗿𝗮𝗹𝗹𝘆 𝗵𝗮𝘃𝗲 𝘄𝗵𝗼𝗹𝗲 𝗮𝗿𝗲𝗮𝘀 𝗵𝗶𝗱 𝘀𝗼 𝗱𝗼𝗻'𝘁 𝘁𝗮𝗸𝗲 𝗶𝘁 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹𝗹𝘆 𝗶𝗳 𝘆𝗼𝘂'𝗿𝗲... 𝗵𝗶𝗱!
 
- <img src="https://files.catbox.moe/0n2wbe.png"> 
+ <img src="https://files.catbox.moe/n691t7.png"> 
 
 <img src="https://64.media.tumblr.com/69efe6070f4e1f5ac82aeb2e787e3f8a/f2cc2a65c0bafe8b-8b/s100x200/9b356ad70d99802bf6fb4387c8a8dcc9847311c0.pnj"> <img src="https://64.media.tumblr.com/0fb2d88ce1c46a92faa714a2dcc08bc2/0dbb877b56918480-cf/s100x200/538ddae26d3657c6273cc88e5f47de4914d10fc6.gifv"> <img src="https://64.media.tumblr.com/9b5e8c88352be49c24d336554b5d2f04/6ee1344952d88480-5d/s100x200/2a86fd9d660ff3ac099616eafa1558b04b4bab02.gifv"> <img src="https://64.media.tumblr.com/74bcaa83644f26d25eba30eee55da917/466cc56e6bf1232e-3b/s100x200/7d5e1c26fce582a51ee315fc97ca7404c207a79e.gifv"> <img src="https://64.media.tumblr.com/09cde1d50e8555960b583a45a673e453/0ff2c29561239f07-ec/s100x200/6f02258bb142be93295656d6e6ee2fc49a5eeb89.pnj"> <img src="https://64.media.tumblr.com/4ec72b354de7326858e8d8f3b38550ef/7fd652550e885837-6b/s100x200/d0536be10e756e2df904e5ea79210b5bfed8f933.pnj">
 
