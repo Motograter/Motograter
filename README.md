@@ -6,11 +6,11 @@
 "𝑾𝒉𝒂𝒕 𝒅𝒐 𝒚𝒐𝒖 𝒔𝒂𝒚? 𝑾𝒂𝒏𝒏𝒂 𝒈𝒐 𝒂𝒓𝒐𝒖𝒏𝒅 𝒂𝒈𝒂𝒊𝒏?"
 
 
-<img src="https://64.media.tumblr.com/f5b6c91251ceca3aaff424275ecf70e3/98cbc5b0decebdf1-55/s100x200/962c768bff39e459f6e5a32e72a137413fdb1ab7.gifv">  <img src="https://64.media.tumblr.com/1594df6b89b00f690b1d4305314af5ae/4549815c4d76e6d3-63/s100x200/abf2fcb267bcf059ceef9da772802acb6da7d0c2.gifv">  <img src="https://64.media.tumblr.com/793fce3e93d4202de8d52c5c31205295/786382531e2cf337-e8/s100x200/c149d58f1fd7f8e5c5310d63ee9fc3717c111106.gifv"> 
+<img src="https://64.media.tumblr.com/5da8491449358d494f97fd38482ee52f/83cfefed88eb3c6e-f0/s100x200/cfe67d1366a007fdae9bf7c672f39e5651a4b039.pnj">  <img src="https://64.media.tumblr.com/eef1108b1a0fc40ee4af55c232fc38da/b5d43db16b7841a0-d3/s100x200/10326a6fb47b0ebb163221d2957dd39ba317141d.gifv">  <img src="https://64.media.tumblr.com/6d8349fdb8412b22cab4760e8ba3cf09/83cfefed88eb3c6e-bc/s100x200/8a9c3dc9b328fd18abcb162f331ee47485050e01.pnj"> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ckindler05&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-<img src="https://64.media.tumblr.com/7253a11bfa8910984f17b1a8d694ca6f/3e919be74c0d52b7-4f/s250x400/2163c4d1bb0fd204797f789ff3590b4539a6198e.webp"> <img src="https://64.media.tumblr.com/dec03436f64c2d1d609174c8ba6ac2f7/3e919be74c0d52b7-c8/s250x400/4b60c016f3df77d2a7056939ba1cbb4709a0dbb9.webp">
+<img src="https://64.media.tumblr.com/958c87c724882567804bb5857c6331a2/b36bad1a2ec865d2-81/s250x400/2e4954a500d5283e8ad1acb3ef395732af262151.gifv"> <img src="https://64.media.tumblr.com/76bf9ee355350e020571bdf1a8225974/f9a3fffead4ca012-de/s250x400/7e8680b6d5b786f2065736b7af21df778d4c5485.gifv">
 
 # 𝐒𝐚𝐢 / 𝐀𝐢𝐫𝐞𝐬 .ᐟ
 
