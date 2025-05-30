@@ -6,31 +6,34 @@
 "𝑾𝒉𝒂𝒕 𝒅𝒐 𝒚𝒐𝒖 𝒔𝒂𝒚? 𝑾𝒂𝒏𝒏𝒂 𝒈𝒐 𝒂𝒓𝒐𝒖𝒏𝒅 𝒂𝒈𝒂𝒊𝒏?"
 
 
-<img src="https://64.media.tumblr.com/5da8491449358d494f97fd38482ee52f/83cfefed88eb3c6e-f0/s100x200/cfe67d1366a007fdae9bf7c672f39e5651a4b039.pnj">  <img src="https://64.media.tumblr.com/eef1108b1a0fc40ee4af55c232fc38da/b5d43db16b7841a0-d3/s100x200/10326a6fb47b0ebb163221d2957dd39ba317141d.gifv">  <img src="https://64.media.tumblr.com/6d8349fdb8412b22cab4760e8ba3cf09/83cfefed88eb3c6e-bc/s100x200/8a9c3dc9b328fd18abcb162f331ee47485050e01.pnj"> 
+<img src="https://64.media.tumblr.com/ea54b63d80b9f558b97e379481022bb0/62d72196e7fb1e6c-61/s100x200/8d421d42e1a881cf674a04acb7bbe075aeea9b0f.pnj">  <img src="https://64.media.tumblr.com/c65da7774f2f1469827e75aef5b2398c/9fc22cea9f38b6f8-38/s100x200/6f81afa70e38efcf5c774291924aa915a728cc4b.pnj">  <img src="https://64.media.tumblr.com/70917267c6a0f562f87a2cc982923209/62d72196e7fb1e6c-b8/s100x200/a345beb7a831c3348c7eb08a006f595a19863a92.pnj"> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ckindler05&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-<img src="https://64.media.tumblr.com/958c87c724882567804bb5857c6331a2/b36bad1a2ec865d2-81/s250x400/2e4954a500d5283e8ad1acb3ef395732af262151.gifv"> <img src="https://64.media.tumblr.com/76bf9ee355350e020571bdf1a8225974/f9a3fffead4ca012-de/s250x400/7e8680b6d5b786f2065736b7af21df778d4c5485.gifv">
+<img src="https://64.media.tumblr.com/2910d2f7befa77982a099e04905f6c54/df1d3a6ef11b7676-7b/s250x400/98c30ec6f267791e93501c802d4c59f0e73a6793.webp"> <img src="https://64.media.tumblr.com/47501232d83cc3101a6173aee9c05f22/9d5e1ecfdcc3f748-1f/s250x400/feff8ba096e1606e3a28fcfe3e08ca6f14503474.gifv">
 
 # 𝐒𝐚𝐢 / 𝐀𝐢𝐫𝐞𝐬 .ᐟ
 
 <p align="center">
-<img src="https://files.catbox.moe/9v7pcf.png"> 
+<img src="https://files.catbox.moe/7cq296.png"> 
 
   <p align="center">
     
-# 𝐀𝐛𝐨𝐮𝐭 .ᐟ
+꒰ [Strawpage](https://trivium.straw.page/) ☆ [Atabook](https://leech.atabook.org/) ꒱
 
-𝗜 𝗮𝗺 𝟭𝟵 𝘆𝗲𝗮𝗿𝘀 𝗼𝗹𝗱 𝗮𝗻𝗱 𝗵𝗶𝗴𝗵𝗸𝗲𝘆 𝗰𝗿𝗶𝗽𝗽𝗹𝗲𝗱 𝗵𝗲𝗵! 𝗜 𝗴𝗼 𝗯𝘆 𝗺𝗮𝗶𝗻𝗹𝘆 𝗛𝗲/Him. 𝗜'𝗺 𝗮 𝗳𝗶𝗰𝘁𝗸𝗶𝗻 𝗼𝗳 𝗦𝗢𝗡𝗜𝗖 𝗧𝗛𝗘 𝗛𝗘𝗗𝗚𝗘𝗛𝗢𝗚, 𝗱𝗼𝘂𝗯𝗹𝗲𝘀 𝗛𝗘𝗔𝗩𝗬 𝗱𝗻𝗶. 𝗕𝗶𝗴 𝗳𝗮𝗻 𝗼𝗳 𝗮𝗱𝘂𝗹𝘁 𝗰𝗮𝗿𝘁𝗼𝗼𝗻𝘀, 𝗙𝗼𝗿𝘁𝗻𝗶𝘁𝗲, 𝗦𝗧𝗛, 𝗜𝗻𝘃𝗶𝗻𝗰𝗶𝗯𝗹𝗲, 𝗣𝗩𝗭, 𝗔𝗹𝗶𝗲𝗻𝘀 𝗳𝗿𝗮𝗻𝗰𝗵𝗶𝘀𝗲, fighting games, 𝗡𝘂 𝗺𝗲𝘁𝗮𝗹 + more. 𝗔𝗟𝗜𝗘𝗡 𝗜𝗥𝗟 /𝗦𝗥𝗦! 𝗡𝗼 𝗳𝗹𝗶𝗿𝘁𝗶𝗻𝗴 𝗜 𝗵𝗮𝘃𝗲 𝗮 𝗯𝗼𝘆𝗳𝗿𝗶𝗲𝗻𝗱 𝗯𝗹𝗲𝗵𝗵𝗵 𝗜 𝗮𝗹𝘀𝗼 𝗵𝗮𝘁𝗲 𝘀𝗲𝘅𝘂𝗮𝗹 𝗷𝗼𝗸𝗲𝘀 𝗺𝗮𝗱𝗲 𝘁𝗼𝘄𝗮𝗿𝗱𝘀 𝗺𝗲
+ᓚ₍⑅^..^₎♡ [Boyfriend](https://github.com/augustineorlov)
+
+── .✦
+
+[Artist credits](https://x.com/SUGar_1999_)
 
 <p align="center">
- <img src="https://files.catbox.moe/hx4001.png">
 
-# 𝐁𝐞𝐟𝐨𝐫𝐞 𝐲𝐨𝐮 𝐢𝐧𝐭 .ᐟ
 
-𝗜'𝗺 𝘁𝘆𝗽𝗶𝗰𝗮𝗹𝗹𝘆 𝗼𝗻 𝗗𝗡𝗜𝗨𝗜𝗗 𝗯𝘂𝘁 𝗰𝗿𝗼𝘄𝗻𝘀, 𝗖+𝗛, 𝗮𝗻𝗱 𝘄𝗵𝗶𝘀𝗽𝗲𝗿𝘀 𝗮𝗿𝗲 𝗮𝗹𝘄𝗮𝘆𝘀 𝗮𝗽𝗽𝗿𝗲𝗰𝗶𝗮𝘁𝗲𝗱! 𝗜'𝗺 𝘂𝘀𝘂𝗮𝗹𝗹𝘆 𝗔𝗙𝗞 𝗳𝗼𝗿 𝗹𝗼𝗻𝗴 𝗽𝗲𝗿𝗶𝗼𝗱𝘀 𝗮𝘁 𝗮 𝘁𝗶𝗺𝗲 𝘀𝗼 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝗲𝘀 𝗶𝗳 𝗜 𝗿𝗲𝗽𝗹𝘆 𝗹𝗮𝘁𝗲. 𝗜'𝗺 𝗮 𝗳𝗿𝗲𝗲 𝗵𝗶𝗱𝗲𝗿 𝗮𝗻𝗱 𝗵𝗮𝘃𝗲 𝗮 𝗴𝗼𝗼𝗱 𝗺𝗮𝗷𝗼𝗿𝗶𝘁𝘆 𝗼𝗳 𝗽𝗲𝗼𝗽𝗹𝗲 𝗵𝗶𝗱, 𝗜 𝗹𝗶𝘁𝗲𝗿𝗮𝗹𝗹𝘆 𝗵𝗮𝘃𝗲 𝘄𝗵𝗼𝗹𝗲 𝗮𝗿𝗲𝗮𝘀 𝗵𝗶𝗱 𝘀𝗼 𝗱𝗼𝗻'𝘁 𝘁𝗮𝗸𝗲 𝗶𝘁 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹𝗹𝘆 𝗶𝗳 𝘆𝗼𝘂'𝗿𝗲... 𝗵𝗶𝗱!
+<img src="https://files.catbox.moe/z8grmj.png">
 
- <img src="https://files.catbox.moe/ezu7hq.png"> 
+#
+
 
 <img src="https://64.media.tumblr.com/69efe6070f4e1f5ac82aeb2e787e3f8a/f2cc2a65c0bafe8b-8b/s100x200/9b356ad70d99802bf6fb4387c8a8dcc9847311c0.pnj"> <img src="https://64.media.tumblr.com/0fb2d88ce1c46a92faa714a2dcc08bc2/0dbb877b56918480-cf/s100x200/538ddae26d3657c6273cc88e5f47de4914d10fc6.gifv"> <img src="https://64.media.tumblr.com/9b5e8c88352be49c24d336554b5d2f04/6ee1344952d88480-5d/s100x200/2a86fd9d660ff3ac099616eafa1558b04b4bab02.gifv"> <img src="https://64.media.tumblr.com/74bcaa83644f26d25eba30eee55da917/466cc56e6bf1232e-3b/s100x200/7d5e1c26fce582a51ee315fc97ca7404c207a79e.gifv"> <img src="https://64.media.tumblr.com/09cde1d50e8555960b583a45a673e453/0ff2c29561239f07-ec/s100x200/6f02258bb142be93295656d6e6ee2fc49a5eeb89.pnj"> <img src="https://64.media.tumblr.com/4ec72b354de7326858e8d8f3b38550ef/7fd652550e885837-6b/s100x200/d0536be10e756e2df904e5ea79210b5bfed8f933.pnj">
 
@@ -43,8 +46,5 @@
 <img src="https://64.media.tumblr.com/51873f606899f3b89b4378ca2e6d53a9/415a1175c7f3ef38-6e/s250x400/716300e6af3ae11c567c278c3cd1533b216bc3e0.gifv"> <img src="https://64.media.tumblr.com/cc1316dc70db33c78466a86aee5cecd5/3cbd3e1699221007-c3/s250x400/2688f1e4957fa94c32d9b452c11270381a973925.gifv"> <img src="https://64.media.tumblr.com/424d522e9ecbca97bdff634815b234a2/097b8aab6dd20129-cb/s250x400/9fb7307c1b75a6655995de52c3a3031735897cdf.gifv"> <img src="https://64.media.tumblr.com/a06e5bde0a0705dfe4dce42dadb65244/3aebf904216005fd-fd/s250x400/5aa633d1434ea797af426dada3ae7f2198e589c4.gifv"> <img src="https://64.media.tumblr.com/1f689cd6405347170d6783d4e61dc78f/d916ba42e9e7eac2-fa/s250x400/5a7b8a4cb9f3958d0abec19856c4a5c9e70f8213.gifv">
 
 <img src="https://64.media.tumblr.com/ff321844051953fabbb612f3d1d5ac94/b035b516dc88dd13-8a/s250x400/f9abd4953811179ca1d214f75d1d4cbce5156095.gifv"> <img src="https://64.media.tumblr.com/910aa333f3854cad291c88dda175208b/b32c64cc93000922-d5/s250x400/d908805a7997274774b7cfcf8c8b137b56779665.gifv"> <img src="https://64.media.tumblr.com/e9a5266fb438bba0a1e7b64ee86a0e32/e24aea302e062a10-5b/s250x400/04dfab7ec354802ce4369191ef8a0676db506390.webp"> <img src="https://64.media.tumblr.com/e0381520571728b4899d2dbb6fe824ea/6db96f7ecd419257-c9/s250x400/1859c6ce568a015efefda3a29da632c434fb2421.gifv"> <img src="https://64.media.tumblr.com/3865bb2701ec3d37ac4defd5ea159229/dc11c7668e47e45f-c4/s250x400/ebde59e5062c79724d416e54376d5a40bce0430d.gifv">
-
-<img src="https://files.catbox.moe/iiv4e2.jpg">
-i made this img btw
 
 </div>
