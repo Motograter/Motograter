@@ -19,7 +19,7 @@
 
   <p align="center">
     
-꒰ [Strawpage](https://trivium.straw.page/) ☆ [Atabook](https://leech.atabook.org/) ☆ [Rentry](https://rentry.co/rott10) ꒱
+꒰ [Strawpage](https://trivium.straw.page/) ☆ [Atabook](https://leech.atabook.org/) ꒱
 
 ᓚ₍⑅^..^₎♡ [Boyfriend](https://github.com/augustineorlov)
 
