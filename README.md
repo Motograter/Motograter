@@ -12,7 +12,7 @@
 
 <img src="https://64.media.tumblr.com/8acd0aa8adabde2837276947e7bb0413/4a54e7f1f17a91de-88/s250x400/d3fe34092127a22e5bc6934120d9f5ea156f92c7.gifv"> <img src="https://files.catbox.moe/6v035g.gif">
 
-# 𝐒𝐚𝐢 / 𝐀𝐢𝐫𝐞𝐬 .ᐟ
+# 𝐒𝐚𝐢 .ᐟ
 
 <p align="center">
 <img src="https://files.catbox.moe/7cq296.png"> 
