@@ -19,7 +19,7 @@
 
   <p align="center">
     
-꒰ [Strawpage](https://skrape.straw.page/) ☆ [Atabook](https://leech.atabook.org/) ꒱
+꒰ [Strawpage](https://skrape.straw.page/) ☆ [Atabook](https://leech.atabook.org/) ☆ [Prns.CC](https://pronouns.cc/@PVZ) ꒱
 
 ᓚ₍⑅^..^₎♡ [Boyfriend](https://github.com/augustineorlov)
 
