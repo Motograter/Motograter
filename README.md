@@ -15,7 +15,7 @@
 # 𝐒𝐚𝐢 .ᐟ
 
 <p align="center">
-<img src="https://files.catbox.moe/gv25oi.png"> 
+<img src="https://files.catbox.moe/3gi4av.png"> 
 
   <p align="center">
     
@@ -30,7 +30,7 @@
 <p align="center">
 
 
-<img src="https://files.catbox.moe/wtxqyl.png">
+<img src="https://files.catbox.moe/o1cfmw.png">
 
 #
 
