@@ -25,7 +25,7 @@
 
 ── .✦
 
-[Artist credits](https://files.catbox.moe/wtxqyl.png)
+[Artist credits](https://x.com/banhaibao2)
 
 <p align="center">
 
