@@ -15,7 +15,7 @@
 # 𝐒𝐚𝐢 .ᐟ
 
 <p align="center">
-<img src="https://files.catbox.moe/7cq296.png"> 
+<img src="https://files.catbox.moe/gv25oi.png"> 
 
   <p align="center">
     
@@ -25,12 +25,12 @@
 
 ── .✦
 
-[Artist credits](https://x.com/SUGar_1999_)
+[Artist credits](https://files.catbox.moe/wtxqyl.png)
 
 <p align="center">
 
 
-<img src="https://files.catbox.moe/z8grmj.png">
+<img src="https://files.catbox.moe/wtxqyl.png">
 
 #
 
