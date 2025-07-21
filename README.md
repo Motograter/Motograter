@@ -25,7 +25,7 @@
 
 ── .✦
 
-[Artist credits 1](https://x.com/R4U1Y) [Artist credits 2](https://x.com/ChatiiChiita)
+[Artist credits 1](https://x.com/R4U1Y) ☆ [Artist credits 2](https://x.com/ChatiiChiita)
 
 
 <p align="center">
