@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=Nintenduu&color=ac1c15&abbreviated=true&style=for-the-badge&label=Mangos)
+![](https://komarev.com/ghpvc/?username=Nintenduu&color=ac1c15&style=for-the-badge&label=Mangos)
 
 
 "𝑾𝒉𝒂𝒕 𝒅𝒐 𝒚𝒐𝒖 𝒔𝒂𝒚? 𝑾𝒂𝒏𝒏𝒂 𝒈𝒐 𝒂𝒓𝒐𝒖𝒏𝒅 𝒂𝒈𝒂𝒊𝒏?"
