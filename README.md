@@ -15,7 +15,7 @@
 # 𝐒𝐚𝐢 .ᐟ
 
 <p align="center">
-<img src="https://files.catbox.moe/x1dlcg.png"> 
+<img src="https://files.catbox.moe/tksg4l.png"> 
 
   <p align="center">
     
@@ -25,13 +25,13 @@
 
 ── .✦
 
-[Artist credits 1](https://x.com/R4U1Y) ☆ [Artist credits 2](https://x.com/ChatiiChiita)
+[Artist credits 1](https://x.com/tordfart)
 
 
 <p align="center">
 
 
-<img src="https://files.catbox.moe/9rdbmv.png">
+<img src="https://files.catbox.moe/8yiqq8.png">
 
 #
 
