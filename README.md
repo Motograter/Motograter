@@ -25,7 +25,7 @@
 
 ── .✦
 
-[Artist credits 1](https://x.com/tordfart)
+[Artist credits](https://x.com/tordfart)
 
 
 <p align="center">
