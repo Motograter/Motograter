@@ -15,7 +15,7 @@
 # 𝐒𝐚𝐢 .ᐟ
 
 <p align="center">
-<img src="https://files.catbox.moe/w37bjr.png"> 
+<img src="https://files.catbox.moe/pabu58.png"> 
 
   <p align="center">
     
@@ -25,13 +25,13 @@
 
 ── .✦
 
-Artist credits -> MY BF AND I
+Artist credits -> MY BF!!
 
 
 <p align="center">
 
 
-<img src="https://files.catbox.moe/5p3dia.gif">
+<img src="https://files.catbox.moe/j4cbwk.png">
 
 #
 
