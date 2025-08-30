@@ -19,7 +19,7 @@
 
   <p align="center">
     
-꒰ [Guns.LOL](https://guns.lol/soniq) ☆ [Atabook](https://leech.atabook.org/) ☆ [Prns.CC](https://pronouns.cc/@PVZ) ꒱
+꒰ [Guns.LOL](https://guns.lol/soniq) ☆ [Atabook](https://leech.atabook.org/) ꒱
 
 ᓚ₍⑅^..^₎♡ [Boyfriend](https://github.com/augustineorlov)
 
