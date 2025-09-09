@@ -25,7 +25,7 @@
 
 ── .✦
 
-Artist credits -> I will look later I dont remember help
+Artist credits -> xixi_uvu
 
 
 <p align="center">
