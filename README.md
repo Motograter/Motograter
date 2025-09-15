@@ -21,8 +21,6 @@
     
 ꒰ [Guns.LOL](https://guns.lol/soniq) ☆ [Atabook](https://leech.atabook.org/) ꒱
 
-ᓚ₍⑅^..^₎♡ [Boyfriend](https://github.com/augustineorlov)
-
 ── .✦
 
 Artist credits -> xixi_uvu
