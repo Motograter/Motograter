@@ -19,7 +19,7 @@
 
   <p align="center">
     
-꒰ [Guns.LOL](https://guns.lol/soniq) ☆ [Atabook](https://leech.atabook.org/) ꒱
+꒰ [Guns.LOL](https://guns.lol/soniq) ☆ [Straw](https://fleetways.straw.page/) ꒱
 
 ── .✦
 
