@@ -12,7 +12,7 @@
 
 <img src="https://64.media.tumblr.com/8acd0aa8adabde2837276947e7bb0413/4a54e7f1f17a91de-88/s250x400/d3fe34092127a22e5bc6934120d9f5ea156f92c7.gifv"> <img src="https://64.media.tumblr.com/ccf4439903aeec95197aac81dccab98a/329115873178d2b3-b7/s250x400/78f515db7c4b0fae960010c91d8a1416f50433b0.gifv">
 
-# 𝐒𝐚𝐢 .ᐟ
+# 𝐒𝐨𝐧𝐢𝐜 .ᐟ
 
 <p align="center">
 <img src="https://files.catbox.moe/tskitm.png"> 
