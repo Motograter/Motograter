@@ -15,7 +15,7 @@
 # 𝐒𝐨𝐧𝐢𝐜 .ᐟ
 
 <p align="center">
-<img src="https://files.catbox.moe/tskitm.png"> 
+<img src="https://files.catbox.moe/8dqanv.png"> 
 
   <p align="center">
     
@@ -29,7 +29,7 @@ Artist credits -> xixi_uvu
 <p align="center">
 
 
-<img src="https://files.catbox.moe/bi9t6y.png">
+<img src="https://files.catbox.moe/w2xrzz.png">
 
 #
 
