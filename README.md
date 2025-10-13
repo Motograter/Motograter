@@ -19,7 +19,7 @@
 
   <p align="center">
     
-꒰ [Prns.CC](https://pronouns.cc/@Sonadow) ☆ [Ata](https://leech.atabook.org/) ☆ [Guns.LOL](https://guns.lol/soniq)  ꒱
+꒰ [Straw](https://fleetways.straw.page/) ☆ [Ata](https://leech.atabook.org/) ☆ [Guns.LOL](https://guns.lol/soniq)  ꒱
 
 ── .✦
 
